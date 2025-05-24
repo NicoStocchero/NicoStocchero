@@ -1,4 +1,4 @@
-# 👋 ¡Hola! Soy Nico Stocchero
+# ¡Hola!
 
 ---
 
