@@ -30,4 +30,4 @@ Trabajo de forma integral: diseño UX/UI, estrategia de producto y desarrollo fu
 
 ## Más sobre mí
 
-Podés escribirme por [LinkedIn](https://www.linkedin.com/in/nicolasstocchero/) o visitar [nicostocchero.com](https://nicostocchero.com)
+Podés escribirme por [LinkedIn](https://www.linkedin.com/in/nicostocchero/) o visitar [nicostocchero.com](https://nicostocchero.com)
